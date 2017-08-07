@@ -2,7 +2,7 @@
 Cách chữa sùi mào gà hiệu quả nhất
 <p>Sùi mào gà&nbsp;là 1 căn bệnh lây nhiễm hiểm nguy không thể thiếu lây nhiễm qua đường quan hệ tình dục không an toàn, do vi-rút được gọi là Human Papilloma Virus dẫn đến. hiện giờ có ko ít cách trị sùi mồng gà và tùy theo từng thời kì mà sẽ có biện pháp chữa trị không giống nhau. Bài viết sau đây của <a href="http://phongkhamsuimaoga.com/">phòng khám sùi mào gà</a>&nbsp;sẽ giới thiệu các biện pháp chữa sùi mồng gà với biện pháp tối ưu nhất.</p>
 
-<p style="text-align: center;"><img alt="" src="http://phongkhamsuimaoga.com/upload/hinhanh/tong-hop-tat-ca-hinh-anh-sui-mao-ga-o-nam-va-nu-gioi-1.jpg" style="height:390px; width:607px" /></p>
+<p style="text-align:center"><img alt="cach-chua-sui-mao-ga" src="http://phongkhamsuimaoga.com/upload/hinhanh/tong-hop-tat-ca-hinh-anh-sui-mao-ga-o-nam-va-nu-gioi-1.jpg" style="height:390px; width:607px" /></p>
 
 <p>Những <a href="http://phongkhamsuimaoga.com/cac-cach-chua-sui-mao-ga-voi-phuong-phap-hieu-qua-nhat-1435.html">phương pháp&nbsp;điều trị sùi mào gà</a> đó chính là dùng thuốc, tây y, Y học cổ truyền và kinh nghiệm người xưa, mỗi biện pháp có một chức năng khác nhau nhưng nên đúng trường hợp thời kỳ và giai đoạn của bệnh</p>
 
